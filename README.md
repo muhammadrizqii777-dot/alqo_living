@@ -1,0 +1,1 @@
+# alqo_living
